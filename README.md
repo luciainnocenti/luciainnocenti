@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 ➭ <i><b>HERE I AM</b></i>  <br />
-Passionate about technology and the future since forever, I graduated in computer engineering and I am pursuing the master's degree in Data Science. In parallel with my studies, I always look for new experiences that allow me to complete my profile and excite me.<br />
+Always passionate about technology and the future, I graduated in computer engineering and I am pursuing the MSc in Data Science. In parallel with my studies, I always look for new experiences that allow me to complete my profile and that excite me.<br />
 
 
 ➭ <i><b>WHAT I DID </b></i>  <br />
